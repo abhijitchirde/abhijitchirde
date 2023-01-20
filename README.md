@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-### I'm Abhijit 😀 and I design product experiences |    
+### I'm Abhijit 😀 and I design product experiences
 ### 📧 Say Hi! on [chirde.abhi@gmail.com](mailto:chirde.abhi@gmail.com)
 
 
