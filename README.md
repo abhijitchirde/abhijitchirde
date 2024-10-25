@@ -17,7 +17,7 @@
 <br/>
   <div align="center">
      
-let's connect at : [web](https://www.abhijitchirde.com)  |  [twitter](https://www.twitter.com/abhichirde)  |  [instagram](https://www.instagram.com/abhijitchirde/)  |  [linkedin](https://www.linkedin.com/in/abhijitchirde)
+let's connect at : [web](https://www.abhijitchirde.com)  |  [instagram](https://www.instagram.com/abhijitchirde/)  |  [linkedin](https://www.linkedin.com/in/abhijitchirde)
     
   </div>
 
